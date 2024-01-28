@@ -9,3 +9,5 @@
 [General Resort Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078255/General.Resort.Information.pdf)
 
 [Westgate Smoky Resort Fact Sheet.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078256/Westgate.Smoky.Resort.Fact.Sheet.pdf)
+
+[Serenity Spa Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078301/Serenity.Spa.Information.pdf)
