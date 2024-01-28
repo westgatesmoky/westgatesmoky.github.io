@@ -1,3 +1,3 @@
-[Activities Guide January 24.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14077648/Activities.Guide.January.24.pdf)
+[Westgate Smoky Resort Map.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14077685/Westgate.Smoky.Resort.Map.pdf)
 
-[Front Desk Q R Codes Jan 24.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14077649/Front.Desk.Q.R.Codes.Jan.24.pdf)
+[Activities Guide January 24.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14077648/Activities.Guide.January.24.pdf)
