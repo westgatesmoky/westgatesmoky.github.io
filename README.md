@@ -6,4 +6,6 @@
 
 [Water Park & Pools.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078096/Water.Park.Pools.pdf)
 
-[General Resort Inforation.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078097/General.Resort.Inforation.pdf)
+[General Resort Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078255/General.Resort.Information.pdf)
+
+[Westgate Smoky Resort Fact Sheet.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078256/Westgate.Smoky.Resort.Fact.Sheet.pdf)
