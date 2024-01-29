@@ -4,7 +4,7 @@
 
 [Resort Dining Options & Hours.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14077751/Resort.Dining.Options.Hours.pdf)
 
-[Water Park & Pools.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078096/Water.Park.Pools.pdf)
+[Water Park & Pools.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086272/Water.Park.Pools.pdf)
 
 [Westgate Smoky Resort Fact Sheet.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14078256/Westgate.Smoky.Resort.Fact.Sheet.pdf)
 
