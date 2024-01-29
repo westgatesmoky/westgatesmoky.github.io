@@ -1,6 +1,6 @@
 [Westgate Smoky Resort Map.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14077685/Westgate.Smoky.Resort.Map.pdf)
 
-[Activities Guide January 24.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14077648/Activities.Guide.January.24.pdf)
+[Activities Guide Feb 2024.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14090358/Activities.Guide.Feb.2024.pdf)
 
 [Amenities & Activities.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14088495/Amenities.Activities.pdf)
 
