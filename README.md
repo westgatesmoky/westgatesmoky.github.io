@@ -10,3 +10,4 @@
 
 [Serenity Spa Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086426/Serenity.Spa.Information.pdf)
 
+[Amenities & Activities.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14088492/Amenities.Activities.pdf)
