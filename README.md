@@ -4,9 +4,9 @@
 
 [Amenities & Activities.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14088495/Amenities.Activities.pdf)
 
-[Resort Dining Options & Hours.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086388/Resort.Dining.Options.Hours.pdf)
+[General Resort Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14090361/General.Resort.Information.pdf)
 
-[General Resort Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086782/General.Resort.Information.pdf)
+[Resort Dining Options & Hours.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086388/Resort.Dining.Options.Hours.pdf)
 
 [Water Park & Pools.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086272/Water.Park.Pools.pdf)
 
