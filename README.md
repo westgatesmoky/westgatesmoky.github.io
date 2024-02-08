@@ -12,4 +12,3 @@
 
 [Serenity Spa Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086426/Serenity.Spa.Information.pdf)
 
-https://www.westgateresorts.com/hotels/tennessee/gatlinburg/westgate-smoky-mountain-resort/activities/
