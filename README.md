@@ -12,4 +12,4 @@
 
 [Serenity Spa Information.pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14086426/Serenity.Spa.Information.pdf)
 
-[Employee Event Dave & Busters .pdf](https://github.com/westgatesmoky/westgatesmoky.github.io/files/14128540/Employee.Event.Dave.Busters.pdf)
+
